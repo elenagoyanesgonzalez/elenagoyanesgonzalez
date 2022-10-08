@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @elenagoyanesgonzalez
+- 👋 Hi, I’m @elenagoyanesgonzalez!
 - 👀 I’m interested in grow up as a person.
 - 🌱 I’m currently learning Computer Vision and French.
 - 💞️ I’m looking to collaborate on projects to improve peoples's lives.
