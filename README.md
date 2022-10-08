@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @elenagoyanesgonzalez
+- 👀 I’m interested in grow up as a person.
+- 🌱 I’m currently learning Computer Vision and French.
+- 💞️ I’m looking to collaborate on projects to improve peoples's lives.
+- 📫 How to reach me: Send me an email to elenagoyanesgonzalez@gmail.com
